@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Shitanshu753
-- 👀 I’m interested in ... Sex
+- 👀 I’m interested in ... 
 - 🌱 I’m currently learning ... Business 
-- 💞️ I’m looking to collaborate on ... Sexy figure girl
+- 💞️ I’m looking to collaborate on ... 
 - 📫 How to reach me ... Nobody 
 - 😄 Pronouns: ... Hahah
 - ⚡ Fun fact: ... Nothing 
